@@ -1,0 +1,1 @@
+Please find [my resume here](https://github.com/vinnyarmentano/vinnyarmentano.github.io/blob/master/Documents/Armentano_V_CV.pdf).
